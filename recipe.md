@@ -1,0 +1,1 @@
+Melt together the butter and choclate together and mix. Next you add the sugar, salt and coffee. Add the eggs and flour and whisk the batter together properly. Put the batter in a pan and bake for 15 - 20 minutes at 350 degrees F
